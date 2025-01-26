@@ -9,9 +9,9 @@ If anyone faces any issues then, they can contact me on WhatsApp or E-mail given
 +49 176 83469302
 manoj.software.dev@gmail.com
 
-Thank you
-Keep learning
-Never stop learning
-Be consistent
-Set your goals 
+Thank you.
+Keep learning.
+Never stop learning.
+Be consistent.
+Set your goals. 
 Success is yours.
